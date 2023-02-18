@@ -1,9 +1,13 @@
+# USAGE
+
+* Bỏ file txt và tool vào 1 folder rồi chạy tool (tắt exel trước khi làm)
+
 # PREVIEW
 
 * (https://discord.gg/teZ5NztXGN)
 * tool hơi rác thông cảm :(
 
-https://github.com/Hoocs151/file-txt-to-exel/blob/1eb5f7777e2f6f7b56f8aee71a7de99a15aeff8e/urgay.mp4
+https://user-images.githubusercontent.com/70364696/219873914-9bb7bab6-508d-4220-ac0a-3773a2ccce8e.mp4
 
 ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay 
 ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay ur gay 

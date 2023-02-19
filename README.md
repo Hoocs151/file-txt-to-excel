@@ -2,6 +2,7 @@
 
 * Format: Username:Password:Cookie
 * Bỏ file txt và tool vào 1 folder rồi chạy tool (tắt exel trước khi làm)
+* hàng free nên bug hay đểu tui chịu
 
 # PREVIEW
 

@@ -7,7 +7,6 @@
 # PREVIEW
 
 * (https://discord.gg/teZ5NztXGN)
-* tool hơi rác thông cảm :(
 * hàng free nên bug hay đểu tui chịu
 
 https://user-images.githubusercontent.com/70364696/219873914-9bb7bab6-508d-4220-ac0a-3773a2ccce8e.mp4
